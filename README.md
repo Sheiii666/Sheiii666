@@ -1,4 +1,3 @@
-- 👋 Hi, I’m @Sheiii666
-- 🌱 I’m currently learning HTML & JS
-- 🧬 Follow me on IG: Sheiii666
-- 📲 Discord --> Shei#0101
+- 👋 Hi, I’m @72z
+- 🧬 Follow me on IG: SimpleVersionOfMe
+- 📲 Discord --> 72z#0666
