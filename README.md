@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @72z
+- 👋 Hi, I’m @Shei
 - 🧬 Follow me on IG: SimpleVersionOfMe
-- 📲 Discord --> 72z#0666
+- 📲 Discord --> 4toh
