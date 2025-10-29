@@ -1,3 +1,4 @@
 - 👋 Hi, I’m @Shei
 - 🧬 Follow me on IG: SimpleVersionOfMe
 - 📲 Discord --> 4toh
+im not posting in this account.
